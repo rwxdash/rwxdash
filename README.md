@@ -1,4 +1,4 @@
-#### You know my name.
+#### You already know too much about me.
 
 - https://dev.to/aoozdemir
 - https://linkedin.com/in/aoguzhanozdemir
